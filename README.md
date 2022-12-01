@@ -8,3 +8,6 @@ It consists of nine building blocks namely, the Key partners, Key activities, Ke
 I created the BMC for Bagsbycanny identifying her Key partners as other bag brands that supplies her brand or those she sells their products for. Some of her Key activities includes; bags prodruction, placing orders from suppliers and wholesalers, etc. Key resoucres include the human know-how, great customer service, etc. Value propositions include quality leather bags, durable bags, etc. Customer relationships include Phoning, Whatsapp group community, etc. Channels include direct channels, wholesalers, retailers, etc. Customer segments include office workers, adults, students, etc. Revenue streams include sale of goods, drop shipping, etc and lastly her Cost structure are production, advertisement, etc.
 
 After compiling the BMC, it was discovered that Bagsbycanny operates the Business-type of strategy in running her business. Bagsbycanny focuses more the customers segments and different types of products to offer to her customers. I also recommend her to improve or find alternative ways for customer relationships so as to create long-lasting business relationships.
+
+
+![Cynthia Ani-BMC](https://user-images.githubusercontent.com/94903456/205034559-d9cf6ed3-457f-4c5f-a281-02ff602c6977.png)
